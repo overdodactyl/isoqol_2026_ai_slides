@@ -1,0 +1,1 @@
+# isoqol_2026_ai_slides
